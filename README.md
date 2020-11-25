@@ -1,4 +1,4 @@
-Hello,Wanna play video games i have somr list of them:-
+Hello,Wanna play video games i have some list of them:-
 
 Minecraft link :-https://tlauncher.org/en/
 
