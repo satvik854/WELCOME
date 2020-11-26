@@ -6,6 +6,6 @@ Free Fire link:-https://gameloop.en.softonic.com/
 
 Among us link :-https://among-us.en.softonic.com/
 
-Annd do visit my YouTube channel link below
+And do visit my YouTube channel link below
 
 
